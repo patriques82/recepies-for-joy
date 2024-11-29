@@ -10,7 +10,7 @@
 
 8.To make a simple lemon-butter sauce, add the juice of one lemon and a little zest to the skillet. Stir to scrape up any browned bits.
 Whisk in 1 tablespoon of butter for a smooth sauce.
-Assemble:
+
 
 Serve the chicken on a plate, optionally topped with the lemon-butter sauce or alongside a fresh green salad dressed with balsamic vinegar and olive oil.
 Garnish with shaved Parmesan, cherry tomatoes, or fresh herbs.

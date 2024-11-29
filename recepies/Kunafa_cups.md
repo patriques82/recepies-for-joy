@@ -1,3 +1,30 @@
+Kunafa cups 
+
+### Ingredients
+
+Sugar syrup
+
+1 cup (225g) sugar
+½ cup (125ml) water
+½ tsp lemon juice
+½ tsp vanilla bean paste
+Kunafa crust
+
+320g (11oz) of kunafa filo pastry, shredded (try Middle Eastern or Turkish supermarkets)
+5 tbsps butter (also extra to grease the muffin tray)
+½ tsp orange food colouring (optional - add more if you want)
+Filling
+
+¾ cup (180ml) milk
+½ cup (115ml) heavy whipping cream
+2 tbsp granulated sugar
+1½ tbsp semolina
+½ tsp cornflour
+½ tsp water
+110g (4oz) mozzarella, grated
+
+### Recept 
+
 Sugar syrup
 
 1- In a medium saucepan, combine the sugar, water and lemon juice. Set on a stovetop over a medium high heat. Stir just to combine, then let it be (if the sugar doesn't dissolve,  you can stir a couple more times but as soon as it starts to boil, stop stirring).

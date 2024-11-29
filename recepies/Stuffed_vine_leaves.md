@@ -50,4 +50,4 @@ Allow to cool slightly before serving. Serve warm or at room temperature with ad
 Tips:
 For a vegetarian version, omit the meat and increase the amount of rice and herbs.
 These can be prepared a day in advance; they taste even better after resting overnight.
-Enjoy your homemade Warak Enab—a dish bursting with the flavors of the Mediterranean! 🌿🍋
+Enjoy your homemade Warak Enab—a dish bursting with the flavors of the Mediterranean! 

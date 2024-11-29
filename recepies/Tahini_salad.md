@@ -10,6 +10,7 @@ Jalapeno pepper
 Aleppo pepper 
 Kosher salt
 Lime juice
+Lemon juice 
 
 MA: Add ⅓ cup tahini, ⅓ cup water, 2 tablespoons lemon juice, and ¾ teaspoon salt to a small bowl and whisk until creamy.
 

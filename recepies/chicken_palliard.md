@@ -20,7 +20,3 @@ Salt and freshly ground black pepper (to taste)
 7.Deglaze the Pan (Optional):
 
 8.To make a simple lemon-butter sauce, add the juice of one lemon and a little zest to the skillet. Stir to scrape up any browned bits.
-Whisk in 1 tablespoon of butter for a smooth sauce.
-Assemble:
- some more ideas
-.you can try more recipes

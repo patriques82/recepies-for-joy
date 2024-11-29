@@ -20,3 +20,5 @@ Fold the flatbread in half and cut down the middle so you have two folded halves
 Do this until your mixture is all rolled up.
 
 Preheat your oven to 350 ℉ (180 ℃). Grease the baking pan with olive oil and line up your rolls. Brush with olive oil or leftover chicken stock. Bake until the tops are golden (about 15 to 20 minutes). Garnish with more sumac and pine nuts if using.
+
+LAST INGREDIENT IS LOVE

@@ -1,12 +1,12 @@
 ### Ingredienser
 
-1 skål hummus
-500 g kokta kikärtor
-4 msk ljus tahina (sesampasta)
-1 vitlöksklyfta
-1-2 citron (justera syra efter smak)
-1 tsk salt
-Ca 0,5-1 dl vatten (beroende på hur lös du vill ha din hummus)
+- 1 skål hummus
+- 500 g kokta kikärtor
+- 4 msk ljus tahina (sesampasta)
+- 1 vitlöksklyfta
+- 1-2 citron (justera syra efter smak)
+- 1 tsk salt
+- Ca 0,5-1 dl vatten (beroende på hur lös du vill ha din hummus)
 
 ### Tillagning
 

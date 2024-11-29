@@ -1,3 +1,9 @@
+Ingredients
+2 cups whole wheat flour (atta)
+1/2 teaspoon salt (optional)
+3/4 cup water (adjust as needed)
+Additional flour for rolling
+
 Steps
 
 Make the Dough:

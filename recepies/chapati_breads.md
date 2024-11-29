@@ -1,5 +1,6 @@
 Ingredients (Makes about 8 chapatis)
 
+2 cups whole wheat flour (atta)
 1/2 teaspoon salt (optional)
 3/4 cup water (adjust as needed)
 1 tablespoon oil or ghee (optional, for softer chapatis)
